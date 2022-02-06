@@ -1,0 +1,2 @@
+# Olet
+LIFE IS HARD
